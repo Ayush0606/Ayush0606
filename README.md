@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ayushupadhyay0606@gmail.com**
 
-- ⚡ Fun fact **life is all about 0s and 1s**
+- ⚡ Fun fact **: life is all about 0s and 1s**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
